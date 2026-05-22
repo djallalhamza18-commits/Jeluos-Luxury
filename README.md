@@ -1,2 +1,0 @@
-# Jeluos-Luxury
-Jeluos Luxury
